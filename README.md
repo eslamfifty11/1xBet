@@ -1,1 +1,1 @@
-# 1xBet
+# 1xBetvip
